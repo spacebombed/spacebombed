@@ -1,5 +1,5 @@
 <div align="center">
-   <a href="https://en.pronouns.page/@witchberries">prnspage</a>ㅤㅤ <a href="https://witch.atabook.org/?page=1">ata</a> ㅤㅤ<a href="https://rentry.co/goldenguns">rentry</a><br/>
+   <a href="https://en.pronouns.page/@witchberries">prnspage</a>ㅤㅤ <a href="https://witch.atabook.org/?page=1">atabook</a> ㅤㅤ<a href="https://rentry.co/goldenguns">rentry</a><br/>
 </div><br/><br/>
 
 
