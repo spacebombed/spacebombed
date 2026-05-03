@@ -8,7 +8,7 @@
 
 
 <div align="center">
-    <img src="https://brief-scarlet-rqn5kmhltb.edgeone.app/Untitled275_20260420165437.png" alt="">
+    <img src="https://files.catbox.moe/ozpqk7.png" alt="">
 </div>
 
 <div align="center">
