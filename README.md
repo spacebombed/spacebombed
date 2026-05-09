@@ -13,6 +13,7 @@
 
 <div align="center">
    art by me 
+   dude ignore the fucking black line on top why did nobody point this out bf help
    
 </div>
 
