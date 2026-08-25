@@ -18,4 +18,4 @@
 </div>
 
 <div align="center">
-pfp by <a href="https://www.tumblr.com/manticorecure/781305103722364928/one-small-step-for-quag-one-giant-leap-for?source=share">@manticorecure</a>
+
