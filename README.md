@@ -8,12 +8,12 @@
 
 
 <div align="center">
-    <img src="https://files.catbox.moe/ozpqk7.png" alt="">
+    <img src="https://files.catbox.moe/xrapo8.png" alt="">
 </div>
 
 <div align="center">
-   art by me^u^ 
-   dude ignore the fucking black line on top why did nobody point this out bf help
+   enneasona wip 
+   
    
 </div>
 
